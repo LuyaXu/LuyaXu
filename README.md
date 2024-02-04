@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @LuyaXu
-- 👀 I’m interested in Data Analytics, language learning, reading fiction, cross-cultural communication studies, and drawing using Procreate.
-- 🌱 I’m currently learning English, Japanese, Spanish, Illustration drawing, and SQL.
+- 👀 I’m interested in Data Analytics, Language Learning, Reading Fiction, Cross-cultural Communication Studies, and Drawing Using Procreate.
+- 🌱 I’m currently learning English, Japanese, Spanish, Illustration Drawing, and SQL.
 - 💞️ I’m looking forward to making friends with people with the same interests as me.
 - 📫 How to reach me xuluya25@gmail.com
 - 😄 Pronouns: She/Her/Hers
